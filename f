@@ -1,2 +1,0 @@
-duwcre ekjcnir 
-oirwvicrenm
